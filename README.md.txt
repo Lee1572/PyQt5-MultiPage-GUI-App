@@ -111,7 +111,7 @@ Lebohang Ramatlapeng
 
 Email: lebohang.ramatlapeng@gmail.com
 
-LinkedIn: LinkedIn Profile
+LinkedIn: www.linkedin.com/in/lebohang-ramatlapeng
 
 GitHub: Lee1572
 
